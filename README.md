@@ -1,0 +1,1 @@
+[![https://gyazo.com/55a753543d7e357441ad919b6ba7353e](https://i.gyazo.com/55a753543d7e357441ad919b6ba7353e.gif)](https://gyazo.com/55a753543d7e357441ad919b6ba7353e)
